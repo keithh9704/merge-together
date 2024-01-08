@@ -1,4 +1,4 @@
 # merge-together
-We
-Like
+People
+hate
 Ice cream

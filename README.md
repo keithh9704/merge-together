@@ -1,4 +1,4 @@
 # merge-together
-We
+People
 Hate
 Candy

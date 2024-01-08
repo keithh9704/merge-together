@@ -1,4 +1,4 @@
 # merge-together
 We
-Love
+Hate
 Ice cream
